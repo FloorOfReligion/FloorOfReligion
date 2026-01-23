@@ -7,6 +7,7 @@ I have a basic DNI, more info in my strawpage.
 
 I block freely.
 
+My main fandoms are SCP and Project Moon!
 
 <img width="240" height="205" alt="image" src="https://github.com/user-attachments/assets/7778b5a5-54be-47c7-8b71-556aa26e043f" />
 
