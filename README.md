@@ -5,6 +5,8 @@ Hello! I go by Morning and several other names online.
 
 I have a basic DNI, more info in my strawpage.
 
+Send me Gimmicks please!!
+
 I block freely.
 
 My main fandoms are SCP and Project Moon!
