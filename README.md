@@ -16,3 +16,12 @@ My main fandoms are SCP and Project Moon!
 
 
 ![](https://komarev.com/ghpvc/?username=FloorOfReligion)
+
+-------------------------------------------------------
+
+"As you are now, so once was I
+
+As I am now, soon you shall be -
+
+Prepare yourself to follow me."
+
