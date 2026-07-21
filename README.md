@@ -1,4 +1,7 @@
 Hello! I go by Morning and several other names online.
+They mostly change based on the github I'm using, but you can ALWAYS call me morning!
+
+When I'm using this github, I mostly go by Morning!!! or Hokma/Angela/Gears
 
 
 <img width="240" height="205" alt="image" src="https://github.com/user-attachments/assets/7778b5a5-54be-47c7-8b71-556aa26e043f" />
