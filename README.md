@@ -24,7 +24,7 @@
 
 <p align="center"> 
 <img src="https://64.media.tumblr.com/d7bd4239c084b4fd30047236f920a659/7c8344449ab273d8-d2/s640x960/93af2c0c7d88cce9fa91748d62a0345c79540e1d.pnj" />
-                                       -------------------------------------------------------
+                                   
 
                                                  "As you are now, so once was I
   
