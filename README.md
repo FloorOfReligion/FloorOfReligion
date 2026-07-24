@@ -34,7 +34,7 @@
 
 
 CREDIT TO NEOSPRITES ON TUMBLR
-
+CREDIT TO MISHIKUJIC ON TWT
 
 
                     
