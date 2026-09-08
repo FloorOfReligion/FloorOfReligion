@@ -20,9 +20,9 @@
 
                                                       Send me Gimmicks please!!
 
-                                                         I block freely.
+                                                          I block freely.
 
-                                                          I am a minor.
+                                                           I am a minor.
 
                                               My main fandoms are SCP and Project Moon!
 
