@@ -8,6 +8,8 @@
                                    Hello! I go by Morning and several other names online.
                     They mostly change based on the github I'm using, but you can ALWAYS call me morning!
 
+                                                      I am a minor.
+
 
                         When I'm using this github, I mostly go by Morning!!! or Hokma/Angela/Gears/Rien/Roland
 
