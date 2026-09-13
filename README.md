@@ -22,6 +22,8 @@
 
                                                           I block freely.
 
+                                             LET ME KNOW IF I FOLLOW ANYONE PROBLEMATIC
+
                                                            I am a minor.
 
                                               My main fandoms are SCP and Project Moon!
